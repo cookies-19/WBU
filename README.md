@@ -1,1 +1,1 @@
-# Worldbiggestuniversity.com
+# Worldbiggestuniversity
